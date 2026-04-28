@@ -2,6 +2,6 @@
 
 
 
-- 🔭 I’m currently working on work and 🌱 I’m currently learning to learn
+- 🔭 I’m currently working on work and learning to learn 🌱
 
 
